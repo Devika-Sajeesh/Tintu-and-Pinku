@@ -1,1 +1,1 @@
-Tintu and Pinku are best friends who went to jungle for a picnic and ran away by seeing baaloo.
+Tintu and Pinku are best friends who went to jungle for a picnic and ran away by seeing baaloo. Pinku suddenly climbed the tree.
